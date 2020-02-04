@@ -1,1 +1,1 @@
-# Day1-part1
+The first day of the journey of training begins with cixware family from 2020/2/4
